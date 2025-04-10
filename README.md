@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **bharathbn2000@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15mIzN-9PQU3R7F5bZWMIq5JEwlw-ezrE/view?usp=drive_link](https://drive.google.com/file/d/15mIzN-9PQU3R7F5bZWMIq5JEwlw-ezrE/view?usp=drive_link)
+- 📄 Know about my experiences [My-Resume](https://drive.google.com/file/d/1mWXwd66hr3RSQlBFsaXR-I50inm2BTMp/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
